@@ -77,5 +77,5 @@ I focus on:
 
 ## 📬 Contact
 
-- LinkedIn: add-your-link-here
-- Email: add-your-email-here
+- LinkedIn: linkedin.com/in/ruama-felix
+- Email: felixruama@gmail.com
